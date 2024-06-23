@@ -90,4 +90,4 @@ CraxsRat Source Code
 
 ► Self-hides after dropping the payload.
 
-Join Us On Telegram  t.me/Anonymous_S0orce
+Join Us On Telegram  [t.me/Anonymous_S0orce](https://t.me/Anonymous_S0orce)
