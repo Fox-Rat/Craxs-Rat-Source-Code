@@ -1,7 +1,7 @@
 # Craxs-Rat-Source-Code
 Craxs-Rat V7.1 Source Code
 
-Join Us On Telegram  t.me/Anonymous_S0orce
+Join Us On Telegram  [t.me/Anonymous_S0orce](https://t.me/Anonymous_S0orce)
 
 CraxsRat Source Code 
 
