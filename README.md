@@ -1,7 +1,7 @@
 # Craxs-Rat-Source-Code
 Craxs-Rat V7.1 Source Code
 
-Join Us On Telegram  https://t.me/blackXC0de
+Join Us On Telegram  t.me/Anonymous_S0orce
 
 CraxsRat Source Code 
 
@@ -90,4 +90,4 @@ CraxsRat Source Code
 
 ► Self-hides after dropping the payload.
 
-Join Us On Telegram  https://t.me/blackXC0de
+Join Us On Telegram  t.me/Anonymous_S0orce
